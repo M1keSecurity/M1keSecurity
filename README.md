@@ -4,7 +4,7 @@
 
 <h5>⁠"Eu NUNCA desisto, precisaria estar morto ou completamente incapacitado."</h5>
 
-<br><br>
+<br>
 
 ### <i>Sobre mim</i>
 
