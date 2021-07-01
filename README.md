@@ -6,6 +6,6 @@
 
 ### <i>Sobre mim</i>
 
--  **Amante de :** Security Information & Programming 💻
--  **Idade :** 14y 🎉
--  **Discord :** m1ke#0007 🎈
+-  **Amante de:** Security Information & Programming 💻
+-  **Idade:** 14y 🎉
+-  **Discord:** m1ke#0007 🎈
