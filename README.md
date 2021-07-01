@@ -12,4 +12,4 @@
 
 -  **Amante de :** Security Information & Programming 💻
 -  **Idade :** 14y 🎉
--  **Discord :** m1ke#000 🎈
+-  **Discord :** m1ke#0007 🎈
