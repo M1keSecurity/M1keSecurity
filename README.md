@@ -4,8 +4,6 @@
 
 <h5>⁠"Eu NUNCA desisto, precisaria estar morto ou completamente incapacitado."</h5>
 
-<br>
-
 ### <i>Sobre mim</i>
 
 -  **Amante de :** Security Information & Programming 💻
